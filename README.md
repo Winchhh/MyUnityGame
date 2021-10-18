@@ -13,3 +13,6 @@ Liste des pires jeux existants :
 
 
   Et bien je suis bien d'accord, sachant que le meilleur jeu ever est Battlefield 3
+
+  trop beau
+  
